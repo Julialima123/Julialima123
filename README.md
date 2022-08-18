@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Julialima123
+- 👋 Hi, I’m **@Julialima123**
 - 🪐 I want to be an astronomer
 - 💫 My sign is Libra
 - ♥︎ I like music
